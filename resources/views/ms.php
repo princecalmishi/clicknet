@@ -1,0 +1,2 @@
+<p>Great news, you will now be the first to see exclusive previews of our latest collections, hear about news from the Abacus!
+                                            community and get the most up to date news in the world of fashion.</p>
